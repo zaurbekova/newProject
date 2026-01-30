@@ -1,1 +1,0 @@
-Zaurbekova Zarema
